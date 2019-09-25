@@ -1,0 +1,2 @@
+# praktikum-sepuluh
+Praktikum Sepuluh
